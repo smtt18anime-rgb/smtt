@@ -1,5 +1,5 @@
 # 涩漫天堂-回家的路
-涩漫天堂最新地址 官网最新地址：（更新时间：2025/12/15）  
+涩漫天堂最新地址 官网最新地址：（更新时间：2025/12/15）    
 涩漫天堂最新入口：https://d3vog19tzlrsqg.cloudfront.net  
 涩漫天堂永久地址:https://18anime.net    https://18anime.co  
 涩漫天堂飞机tg官方群: https://t.me/smtt18_anime  
